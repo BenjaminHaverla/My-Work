@@ -14,7 +14,8 @@ During my internship, I am helping the company produce better photos and videos 
 ### Interview scene
 ![Photo](Images/D_9.png)
 
-# [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia (one week per year):
+# [Animation/Film instructor for kid's camp](https://www.lks.sk/podujatia/2021_filmarik_animarik) in Slovakia:
+- one week per year
 
 ![Camp](Camp/C_1.png) ![Camp](Camp/C_2.png) ![Camp](Camp/C_3.png)
 ![Camp](Camp/C_4.png) ![Camp](Camp/C_5.png) ![Camp](Camp/C_6.png)
