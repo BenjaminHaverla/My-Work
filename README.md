@@ -73,6 +73,8 @@ During my internship, I am helping the company produce better photos and videos 
 
 - [**Videos for Maria Dudova - financial advisor in Bratislava 4**](https://www.youtube.com/watch?v=gryimh1fu9o) (2021)
 
+-------------------------------------------------------------
+
 # BACK TO THE:
 ## [Main Page (English for designers)](https://github.com/BenjaminHaverla/English-for-designers.git)
 ## [Benjamín Haverla – Who am I ?](https://github.com/BenjaminHaverla/First-impression.git)
