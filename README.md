@@ -1,4 +1,4 @@
-# [Direktorenhaus](https://www.direktorenhaus.com) (current internship) in Berlin
+# [Direktorenhaus](https://www.direktorenhaus.com) (current internship) in Berlin, Germany
 
 - Videographer,
 - Animator,
