@@ -29,3 +29,15 @@ During my internship, I am helping the company produce better photos and videos 
 - [The Tattooist of Auschwitz](https://www.imdb.com/title/tt9022422/) (2022)
 
 - [Les Loups-Garous](https://www.praguereporter.com/home/2023/7/6/netflix-adaptation-of-werewolf-party-game-starring-jean-reno-now-filming-in-prague/) (2023) (French language)
+
+# New Era of Featured Projects
+
+- [**"UKUPHILA"**](https://filmfreeway.com/projects/2382005) (2021)
+
+- [**"SEANSA"**](https://www.youtube.com/watch?v=rrN2c0EgOkI) (2022)
+
+- [**"Bees"**](https://www.youtube.com/watch?v=8TpoLYfG1NM) (2022)
+
+- [**"Zombie vs. Ninja"**](https://filmfreeway.com/projects/2504641) (2022)
+
+- [**"Presentation of the art department for the 100th anniversary"**](https://filmfreeway.com/projects/2606470) (2022)
