@@ -28,6 +28,10 @@ During my internship, I am helping the company produce better photos and videos 
 
 I joined SSOSTA TV at our high school. I gained valuable experience in teamwork, generated creative ideas, and developed essential technology skills.
 
+# 3D Character Animation
+
+![SSOSTA TV team. Behind them is green screen](Images/GIF.mp4)
+
 # Background acting in movies:
 
 - [The Performance](https://www.imdb.com/title/tt15300212/) (2021)
