@@ -30,11 +30,7 @@ I joined SSOSTA TV at our high school. I gained valuable experience in teamwork,
 
 # 3D Character Animation
 
-
-
-[!](Uploading 862419dc-e019-4530-99a9-5e2639035c86.mp4…)
-
-
+https://github.com/BenjaminHaverla/My-Work/assets/149423594/3ae7a558-d8dc-4f32-96b9-0bd6ea1929b3
 
 # Background acting in movies:
 
