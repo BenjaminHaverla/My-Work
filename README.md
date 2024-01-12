@@ -22,6 +22,12 @@ During my internship, I am helping the company produce better photos and videos 
 ![Camp](Camp/C_7.png) ![Camp](Camp/C_8.png) ![Camp](Camp/C_9.png)
 ![Camp](Camp/C_10.png)
 
+## SSOSTA TV
+
+![SSOSTA TV team. Behind them is green screen](Images/ssostatv_green.jpg)
+
+I joined SSOSTA TV at our high school. I gained valuable experience in teamwork, generated creative ideas, and developed essential technology skills.
+
 # Background acting in movies:
 
 - [The Performance](https://www.imdb.com/title/tt15300212/) (2021)
