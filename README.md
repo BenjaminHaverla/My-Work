@@ -30,7 +30,11 @@ I joined SSOSTA TV at our high school. I gained valuable experience in teamwork,
 
 # 3D Character Animation
 
-![SSOSTA TV team. Behind them is green screen](Images/GIF.mp4)
+
+
+Uploading 862419dc-e019-4530-99a9-5e2639035c86.mp4…
+
+
 
 # Background acting in movies:
 
